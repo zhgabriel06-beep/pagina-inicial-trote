@@ -1,0 +1,1 @@
+# projeto-trote-solidario.completo
